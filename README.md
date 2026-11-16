@@ -11,7 +11,6 @@ Co-founder of [AchieveGo](https://achievego.ai). We operate real businesses with
 **Background**
 
 - Co-founder and former CEO of WIZ.AI, enterprise voice AI across 17 countries
-- WEF Young Global Leader, Class of 2026
 
 **Say hi**
 
